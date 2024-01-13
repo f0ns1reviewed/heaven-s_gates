@@ -1,4 +1,4 @@
-# Heavent's gates!
+# Heaven's gates!
 
 ```
 She said to me, I'll take you to the heaven's gates ! 
